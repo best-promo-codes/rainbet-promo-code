@@ -1,4 +1,4 @@
-# rainbet-promo-code
+
 <h1>RainBet Promo Code "CSGOBETTINGS" - enjoy a 20% rakeback boost</h1>
 
 In the dynamic realm of online gaming and wagering, gaining a competitive advantage can significantly improve your gaming performance and potential profits. 
