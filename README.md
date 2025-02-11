@@ -1,3 +1,4 @@
+# rainbet-promo-code: RainBet Promo Code "CSGOBETTINGS" - 20% rakeback boost
 
 <h1>RainBet Promo Code "CSGOBETTINGS" - enjoy a 20% rakeback boost</h1>
 
