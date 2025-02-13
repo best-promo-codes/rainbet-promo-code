@@ -16,7 +16,7 @@ RainBet’s generous 20% rakeback promotion allows bettors to substantially redu
   <tr>
     <th>✅ Product</th>
     <th>Promo Code</th>
-    <th>Exculise Bonus</th>
+    <th>Exclusive Bonus</th>
   </tr>
   <tr>
     <td>➡️ Rainbet Promo Code</td>
